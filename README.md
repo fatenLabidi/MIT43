@@ -1,5 +1,4 @@
 # MIT43
 Dépôt des MIT43
 
-Le cul.
-Ferme ta gueule salope.
+Merci de respecter les règles de savoir-vivre de base.
